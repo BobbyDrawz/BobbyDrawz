@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BobbyDrawz
+- 👀 I’m interested in FNF/Roblox Lua Scripting
+- 😄 Pronouns: He/Him [is male]
+- ⚡ Fun fact: Am good at music and stuff
