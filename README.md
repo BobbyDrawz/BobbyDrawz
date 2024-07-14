@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @BobbyDrawz
-- 👀 I’m interested in FNF/Roblox Lua Scripting
+- 👀 I’m interested in FNF/Roblox Lua Scripting [and just programming in general]
 - 😄 Pronouns: He/Him [is male]
 - ⚡ Fun fact: Am good at music and stuff
